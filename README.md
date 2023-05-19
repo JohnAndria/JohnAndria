@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **web development services**
 
-- 📫 How to reach me **john_andria@yahoo.com**
+- 📫 How to reach me **johnandria90@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
